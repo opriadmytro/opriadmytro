@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Dmytro Opria
+- 👀 I’m interested in Coding and Active rest
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking for new frinds
+- 📫 dimk824@gmail.com
+- FB/INSTA/LinkedIn - @opriadmytro
